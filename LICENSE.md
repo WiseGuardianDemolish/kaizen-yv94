@@ -1,4 +1,4 @@
-
+kaizen Script new offers the most advanced kaizen Script, with custom skins and auto-collect. Perfect for dominating any match.
 
 
 
